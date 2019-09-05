@@ -66,6 +66,7 @@ There are other published books from Mark Joshi:
 
 Unfortunately Mark Joshi will not publish more books. 
 
-
+## Linkedin
+If you are interested follow me on Linkedin: https://es.linkedin.com/in/ignacio-anguita-espadaler
 
 
